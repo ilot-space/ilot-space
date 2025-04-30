@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ilot-space
-- 👀 I’m interested in organising things !
+- 👀 I’m interested in organizing things !
 - 🌱 I’m currently learning how to be usefull
 - 💞️ I’m looking to collaborate on your projects )
 - 📫 How to reach me, simply go to ilot.app !
